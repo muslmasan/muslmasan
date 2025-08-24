@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **Mobile Application , Backend**
 
-- ⚡ Fun fact **I the best One**
+- ⚡ Fun fact **I'm the best One**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
